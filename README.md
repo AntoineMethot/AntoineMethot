@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AntoineMethot
+- 👀 I’m interested in finishing school
+- 🌱 I’m currently learning how to use github
+- 💞️ I’m looking to collaborate on my school projects
+- 📫 How to reach me: no
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Big muscles
